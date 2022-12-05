@@ -1,1 +1,1 @@
-Doing Thigs. I don't know
+Doing Things. I don't know
